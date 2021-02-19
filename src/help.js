@@ -5,8 +5,8 @@ const //database
 ╠➥ 𝐍𝐈𝐆𝐇𝐓 𝐁𝐎𝐓
 ╠➥ *1.0*
 ╠➥ 𝐃𝐎𝐍𝐎:  ⃬⃗𝐷𝐴𝑅𝐾⃖ E 𝑯𝒀𝑂𝑼𝑲𝛬  ☔
-╠➥ *wa.me/+5522996215481*
-╠➥ *wa.me/+5521980815830
+╠➥ *wa.me/+5527981053745*
+╠➥ *wa.me/+5521980815830*
 ╠➥ 𝐒𝐓𝐀𝐓𝐔𝐒: ON
 ║
 ╠══✪〘 NOVIDADES 〙✪══
@@ -222,9 +222,9 @@ const //database
 ╠══✪〘 𝗗𝗢𝗡𝗢 〙✪══
 ║
 ║ *NOME: 𝐷𝐴𝑅𝐾⃖  E 𝑯𝒀𝑂𝑼𝑲𝛬☔*
-║ *INSTA: th.darkys*
+
 ║ *WPP:
-wa.me/+5521997123716*
+wa.me/+5527981053745*
 ║ *YOUTUBE:* https://bit.ly/3qAjeNz*
 ║
 ║ *INSTA: hyouka_000*
